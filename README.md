@@ -1,4 +1,4 @@
-# Extended Pony Town bio-
+# Extended bio-
 
 Wolfmom/Birdcages/TealCage doc in my links,,
 
@@ -52,3 +52,5 @@ Valentino fans/kins
 ANY type of friendship with Wolfmom and their group
 
 If I tell you to leave me be and you ignore me,,, I WILL hide you if i have to :)
+
+~ A final note, I use the block button freely :)
